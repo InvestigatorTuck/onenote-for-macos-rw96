@@ -1,4 +1,4 @@
-
+updated OneNote for macOS Integration | export to PDF + widgets is the best OneNote for macOS integration, featuring export to PDF and widgets. Safe, efficient, and optimized for
 
 
 
